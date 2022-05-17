@@ -1,0 +1,1 @@
+[AAAAAAA](https://sztomczyk.github.io/log.html)
